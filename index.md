@@ -30,7 +30,7 @@ Soy una persona joven, dispuesto siempre a aprender y mejorar. Mis intereses son
 
 ### Experiencia
 
-`03/2021 - 06/2021`
+`03/1021 - 06/2021`
 
 Soporte Técnico
 
